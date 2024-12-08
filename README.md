@@ -1,0 +1,1 @@
+# Stripped_table
